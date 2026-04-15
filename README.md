@@ -1,15 +1,17 @@
 <p align="center">
-<img width="732" height="42" alt="image" src="https://64.media.tumblr.com/b95e7143550c5ce6644a4563e7b652c5/eb5e40a4245fc7b4-23/s640x960/49d893d2d9d0d3ac0dc45b885da66c0112eaaa09.gifv" />
+<img width="721" height="20" alt="image" src="https://64.media.tumblr.com/b95e7143550c5ce6644a4563e7b652c5/eb5e40a4245fc7b4-23/s640x960/49d893d2d9d0d3ac0dc45b885da66c0112eaaa09.gifv" />
 
 
 <p align="center">
- <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/69c1b05c-c19e-44cc-bcac-2baeaa0894a8/dfody0p-b1918ca5-8715-482c-8d56-507ea19ec533.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiIvZi82OWMxYjA1Yy1jMTllLTQ0Y2MtYmNhYy0yYmFlYWEwODk0YTgvZGZvZHkwcC1iMTkxOGNhNS04NzE1LTQ4MmMtOGQ1Ni01MDdlYTE5ZWM1MzMucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.VMgnMhjKtUEdgESDX5SHGJk0Nh0tCALsSTQZ0dBfwzU" width="150" height="150" > ${\textsf{\color{#4169e1}ᨳິ    ׂ     𓈒  i like ass pancakes ྀ ͚}}$ <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/b6d5910f-e283-4212-a420-be52fc884dbb/dfgfbqw-cc86807a-aa1a-4e9d-996a-4202c48e540e.png/v1/fill/w_1280,h_1957/tf2_freak__ass_pancakes_by_thunderscuntkrazy_dfgfbqw-fullview.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7ImhlaWdodCI6Ijw9MTk1NyIsInBhdGgiOiIvZi9iNmQ1OTEwZi1lMjgzLTQyMTItYTQyMC1iZTUyZmM4ODRkYmIvZGZnZmJxdy1jYzg2ODA3YS1hYTFhLTRlOWQtOTk2YS00MjAyYzQ4ZTU0MGUucG5nIiwid2lkdGgiOiI8PTEyODAifV1dLCJhdWQiOlsidXJuOnNlcnZpY2U6aW1hZ2Uub3BlcmF0aW9ucyJdfQ.0HV_SKL6Bk7DbaixBZFBx6RV4wP36gejf0Wru1MaV88" width="150" height="150" >
+ <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/69c1b05c-c19e-44cc-bcac-2baeaa0894a8/dfody0p-b1918ca5-8715-482c-8d56-507ea19ec533.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiIvZi82OWMxYjA1Yy1jMTllLTQ0Y2MtYmNhYy0yYmFlYWEwODk0YTgvZGZvZHkwcC1iMTkxOGNhNS04NzE1LTQ4MmMtOGQ1Ni01MDdlYTE5ZWM1MzMucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.VMgnMhjKtUEdgESDX5SHGJk0Nh0tCALsSTQZ0dBfwzU" width="150" height="150" 
+  > ${\textsf{\color{#4169e1}ᨳິ    ׂ     𓈒  i like ass pancakes ྀ ͚}}$
+ 
 
 <p align="center">
 <img src="https://komarev.com/ghpvc/?username=ProfessionalsHaveStandardss">
 
 <p align="center">
-<img src="https://media1.tenor.com/m/DlvP-uE_b1gAAAAd/ass-pancakes-tf2-freaks.gif" width="200" height="400" >
+<img src="https://media1.tenor.com/m/DlvP-uE_b1gAAAAd/ass-pancakes-tf2-freaks.gif" width="200" height="250" >
   
 </div>
 
