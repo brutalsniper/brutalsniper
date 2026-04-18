@@ -188,3 +188,13 @@
 <a href="" target="_blank"><img width="200" src="https://64.media.tumblr.com/3202dadc71198983fdb958372fb64616/e6c3d6e24bb9e481-25/s250x400/220ab9d6cca95b6b95444112c25d497f8b148d44.gifv"></a>
 <a href="" target="_blank"><img width="200" src="https://64.media.tumblr.com/2a6fe5c862afd47641dfae92be8cbca1/55edfcb49ec99f52-79/s250x400/46477f4a1cbea874688acc93f637aa4a4a9e73b7.gifv"></a>
 
+
+  </details>
+
+<details align="center">
+
+<summary>ㅤ ${\textsf{\color{#4169e1}﹕ 𝄞 ˶ stupid screenshots (wip) ˶ ༉ ﹕}}$ !! </summary
+
+<p align="center">
+ <img width="423" height="282" alt="image" src="https://github.com/user-attachments/assets/4959b718-45d8-4ebf-8772-d4e6aacb94ad" />
+
