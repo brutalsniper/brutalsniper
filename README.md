@@ -11,7 +11,8 @@
 <img src="https://komarev.com/ghpvc/?username=ProfessionalsHaveStandardss">
 
 <p align="center">
-<img src="https://media1.tenor.com/m/DlvP-uE_b1gAAAAd/ass-pancakes-tf2-freaks.gif" width="200" height="250" >
+<img width="188" height="200" alt="image" src="https://github.com/user-attachments/assets/80bb3c65-0c43-4b5a-ab88-530c60d08229" />
+
   
 </div>
 
