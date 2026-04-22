@@ -1,33 +1,6 @@
-<p align="center">
-<img width="721" height="20" alt="image" src="https://64.media.tumblr.com/b95e7143550c5ce6644a4563e7b652c5/eb5e40a4245fc7b4-23/s640x960/49d893d2d9d0d3ac0dc45b885da66c0112eaaa09.gifv" />
+> ${\textsf{\color{#ff3d3d}ᨳິ    ׂ     𓈒  welcome to my github!! (˶ᵔ ᵕ ᵔ˶) ྀ ͚}}$
 
-
-<p align="center">
- <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/69c1b05c-c19e-44cc-bcac-2baeaa0894a8/dfody0p-b1918ca5-8715-482c-8d56-507ea19ec533.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiIvZi82OWMxYjA1Yy1jMTllLTQ0Y2MtYmNhYy0yYmFlYWEwODk0YTgvZGZvZHkwcC1iMTkxOGNhNS04NzE1LTQ4MmMtOGQ1Ni01MDdlYTE5ZWM1MzMucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.VMgnMhjKtUEdgESDX5SHGJk0Nh0tCALsSTQZ0dBfwzU" width="150" height="150" 
-  > ${\textsf{\color{#4169e1}ᨳິ    ׂ     𓈒  i like ass pancakes ྀ ͚}}$
- 
-
-<p align="center">
-<img src="https://komarev.com/ghpvc/?username=ProfessionalsHaveStandardss">
-
-<p align="center">
-<img width="188" height="200" alt="image" src="https://github.com/user-attachments/assets/80bb3c65-0c43-4b5a-ab88-530c60d08229" />
-
-  
-</div>
-
-</details>
-
-<details align="center">
-
-<summary>ㅤ ${\textsf{\color{#4169e1}﹕ 𝄞 ˶ INFO ˶ ༉ ﹕}}$ !! </summary
-  <a href="" target="_blank"><img width="25" src="https://64.media.tumblr.com/d6a459929ce0c257fdf7f0cdcd3bebd0/7b10ea5127190c34-cf/s75x75_c1/dca2e47836777a13835e1f90d0615888d8546654.gifv"></a>ㅤ » read my strawpage for stuff but im my main fandoms r homestuck, metalocalypse, tf2, eddsworld, ff2 anf emh
-
-  </details>
-
-<details align="center">
-
-<summary>ㅤ ${\textsf{\color{#4169e1}﹕ 𝄞 ˶ Blinkies/Stamps ˶ ༉ ﹕}}$ !! </summary
+<summary>ㅤ ${\textsf{\color{#ff3d3d}﹕ 𝄞 ˶ Blinkies/Stamps ˶ ༉ ﹕}}$ !! </summary
 
  <a href="" target="_blank"><img width="120" src="https://64.media.tumblr.com/dee5bc49b0d93be85966fca1a7697963/1881390cbd6f2163-20/s500x750/abdb7ad9156fdcddd84956705406d64da4e1627f.gifv"></a>
 <a href="" target="_blank"><img width="120" src="https://64.media.tumblr.com/42d571589c0ca748cda2e2bab175b93a/ff1d8ea056012e5c-96/s100x200/be48d77ea6e2430c75cbd9e92dc40ce6a970c929.gifv"></a>
@@ -144,13 +117,4 @@
 <a href="" target="_blank"><img width="200" src="https://64.media.tumblr.com/3202dadc71198983fdb958372fb64616/e6c3d6e24bb9e481-25/s250x400/220ab9d6cca95b6b95444112c25d497f8b148d44.gifv"></a>
 <a href="" target="_blank"><img width="200" src="https://64.media.tumblr.com/2a6fe5c862afd47641dfae92be8cbca1/55edfcb49ec99f52-79/s250x400/46477f4a1cbea874688acc93f637aa4a4a9e73b7.gifv"></a>
 
-
-  </details>
-
-<details align="center">
-
-<summary>ㅤ ${\textsf{\color{#4169e1}﹕ 𝄞 ˶ stupid screenshots (wip) ˶ ༉ ﹕}}$ !! </summary
-
-<p align="center">
- <img width="423" height="282" alt="image" src="https://github.com/user-attachments/assets/4959b718-45d8-4ebf-8772-d4e6aacb94ad" />
 
