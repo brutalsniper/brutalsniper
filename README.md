@@ -1,6 +1,12 @@
+
+<details align="center">
 > ${\textsf{\color{#ff3d3d}ᨳິ    ׂ     𓈒  welcome to my github!! (˶ᵔ ᵕ ᵔ˶) ྀ ͚}}$
 
-<summary>ㅤ ${\textsf{\color{#ff3d3d}﹕ 𝄞 ˶ Blinkies/Stamps ˶ ༉ ﹕}}$ !! </summary
+ </details>
+
+<details align="center">
+
+<summary> ${\textsf{\color{#ff3d3d}﹕ 𝄞 ˶ Blinkies/Stamps ˶ ༉ ﹕}}$ !! </summary
 
  <a href="" target="_blank"><img width="120" src="https://64.media.tumblr.com/dee5bc49b0d93be85966fca1a7697963/1881390cbd6f2163-20/s500x750/abdb7ad9156fdcddd84956705406d64da4e1627f.gifv"></a>
 <a href="" target="_blank"><img width="120" src="https://64.media.tumblr.com/42d571589c0ca748cda2e2bab175b93a/ff1d8ea056012e5c-96/s100x200/be48d77ea6e2430c75cbd9e92dc40ce6a970c929.gifv"></a>
